@@ -1,2 +1,0 @@
-# KiLaVN
-You Gay
